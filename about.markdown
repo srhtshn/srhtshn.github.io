@@ -13,5 +13,4 @@ Over the years, I have always been a consumer of the information. This time, I d
 
 I attemped to have a personal blog couple of times, but couldn't manage to keep it active. Hopefully, this time outcome will be different.
 
-Cheers! :beers:  
-Serhat
+Cheers!  
